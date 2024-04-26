@@ -1,16 +1,15 @@
-### Hi there 👋
+### Oi bebês 😻😼
 
-<!--
-**elevynha/elevynha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_Fazendo o Alura_ ☹️
 
-Here are some ideas to get you started:
+- Jogo amor doce e formo casal com Castiel e Lysandre 😝
+- Amo The Weeknd 🙈
+- Jensen Ackles sonho de homem 👺
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media1.tenor.com/m/58QGS42-rYwAAAAC/dean-winchester-jensen-ackles.gif)
+
+### Meu inta aí caso queira seguir... 🤓
+
+xxelevynn
+
+![](https://media1.tenor.com/m/DuThn51FjPcAAAAC/nerd-emoji-nerd.gif)
