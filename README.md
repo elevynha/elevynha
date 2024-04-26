@@ -6,10 +6,10 @@ _Fazendo o Alura_ ☹️
 - Amo The Weeknd 🙈
 - Jensen Ackles sonho de homem 👺
 
-![](https://media1.tenor.com/m/58QGS42-rYwAAAAC/dean-winchester-jensen-ackles.gif)
+  _Email de contato_
 
-### Meu inta aí caso queira seguir... 🤓
+  00001095768487sp@al.educacao.sp.gov.br
 
-xxelevynn
+  😇👍
 
-![](https://media1.tenor.com/m/DuThn51FjPcAAAAC/nerd-emoji-nerd.gif)
+![](https://media1.tenor.com/m/ocEDQd5kXf4AAAAC/gokublack-dbs.gif)
