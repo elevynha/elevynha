@@ -6,7 +6,7 @@ _Fazendo o [Alura](https://www.alura.com.br)_ ☹️
 - Amo The Weeknd 🙈
 - Jensen Ackles sonho de homem 👺
 
-  _Email de contato_ 📬
+  _**Email de contato**_ 📬
 
   00001095768487sp@al.educacao.sp.gov.br
 
